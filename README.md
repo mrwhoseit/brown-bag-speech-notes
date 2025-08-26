@@ -5,8 +5,8 @@ So I gotta bring three objects that are able to fit within a brown bag (Like one
 So here's how I can start off my speech. I can describe how when we were tasked with the assignment, I wanted to look deeper and see what the stories behind them were. 
 
 **The Three Objects:**
-- [x] SD Card - Cameras and photography
-- [x] dumbbell - Workout out
+- [x] SD Card - Cameras and photography has been my hobby throughout my teenage years
+- [x] Dumbbell - Working out has changed habits and built who I am
 - [x] CPU - Technology has shaped my personality
 
 **This isn't a word for word thing I will say. However it will be a little close, while remaining in the time frame.**
